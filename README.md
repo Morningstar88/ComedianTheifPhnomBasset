@@ -67,22 +67,7 @@ A phone call may scare him into respecting us.
 គាត់ហាក់ដូចជាគិតថាគាត់នៅពីលើច្បាប់។
 
 ការហៅទូរស័ព្ទអាចបន្លាចគាត់ឱ្យគោរពយើង។
-##  tomninh khangokraom trauv ban luoch . 
 
-- Gibson SG pnrkhmaw  mean ayou cheang 2  tosavotsaa .
--  hkeitea braab sai hka chamnuon 3  phlit daoy aupouk khnhom . 
--  m ng dau li n .
--  kabaubdai muoy .
-
- tamlei saroub yeanghaochneasa 1000USD  .  e sa chi kuchea votthoboran .  keat ban doengrueng nih . 
-
- keat nung min leuk toursapt now thngaiti 19  khemesaea chhnam 2025  . 
-
- yeung​ som​ aoy​ baulisa​ kampouchea​ chuoy​ teaktng​ keat . 
-
- keat hakdauchchea kitthea keat now pi leu chbab .
-
- kar haw toursapt ach banleach keat aoy korp yeung .
 បង្ហាញ​ច្រើនទៀត
 ផ្ដល់​មតិ​ស្ថាបនា
 មានលទ្ធផលបកប្រែ

@@ -4,6 +4,16 @@
 
 ## ហ្គីតារបស់ខ្ញុំត្រូវបានចោរលួចកាលពីថ្ងៃទី ១៩ ខែមេសា ឆ្នាំ ២០២៥ ដោយតារាកំប្លែងខ្មែរធាត់ម្នាក់មកពីភ្នំបាសិត។
 
+Update for police. 
+
+Leak has returned two valuable guitars. He has still got to give me 60 dollars and two instruments. he met me twice, with many excuses and lies each time. Please ignore his stories and tell him to pay me back. He thinks he is above the law, as he is with a secret group. He is arrogant, and openly told me he thinks Europeans are stupid.
+
+If you wonder why Cambodia cant get enough investment, it is because of people like him.
+
+I need 60 USD, and my two instruments.
+
+We ask all 2025/2045 groups to punish him to the full extent of the law. 
+
 ### លេខទូរស័ព្ទរបស់គាត់គឺ
 
 089-905-848
